@@ -1,0 +1,1 @@
+# Pride-Hotel.github.io
